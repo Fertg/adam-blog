@@ -11,7 +11,7 @@ ACTIVIDAD PRACTICA
 
 
 
-> Snackwave chillwave seitan whatever, flannel wolf vinyl occupy activated charcoal succulents waistcoat. Four dollar toast godard austin raclette gastropub bespoke cred whatever deep v activated charcoal actually man braid kitsch vaporware chicharrones.
+> Viewnext es una empresa de tecnología de la información del grupo IBM en España, con una experiencia de más de 30 años en el sector TIC.
 
 
 
